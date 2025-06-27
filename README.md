@@ -15,7 +15,7 @@
 
 - 👨‍💻 All of my projects are available at [Isn't available](Isn't available)
 
-- 📝 I regularly write articles on [I don't how to write](I don't how to write)
+- 📝 I regularly write articles on [I don't know how to write](I don't how to write)
 
 - 💬 Ask me about **Nothing**
 
